@@ -1,4 +1,4 @@
-### royupchurch
+### - **Discord**: [royupchurch](https://discord.com/users/royupchurch)
 
 <!--
 **upchurchroy851/upchurchroy851** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
